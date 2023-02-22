@@ -1,0 +1,1 @@
+# Previs-o_e_detec-o_de_falha_de_motores_a_jato_Turbofan_da_NASA
